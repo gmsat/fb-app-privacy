@@ -9,7 +9,7 @@ This Data Deletion Policy explains how you can request deletion of your data col
 ## How to Request Data Deletion
 If you would like to have your data deleted, please contact us at:
 
-**privacy.workflow.app@protonmail.com**
+**darkinkben@gmail.com**
 
 ---
 
